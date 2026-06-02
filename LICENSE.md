@@ -1,4 +1,4 @@
-# 
+# Personalizado okx trading bot ferramentas para Mac OS | Instantâneo okx trading bot ferramentas para PC Windows. Com painéis personalizados e API de exchange descentralizada — otimizado para máximo desempenho em cada plataforma.
 
 
 
